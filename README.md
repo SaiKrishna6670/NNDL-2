@@ -1,1 +1,1 @@
-# Watch here for explanatio:- https://youtu.be/WSyUiy5C73M
+# Watch here for explanation:- https://youtu.be/WSyUiy5C73M
